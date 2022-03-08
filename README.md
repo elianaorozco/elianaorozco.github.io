@@ -1,1 +1,1 @@
-Favorite Destinations Map
+My Favorite Destinations Map
